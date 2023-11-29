@@ -1,2 +1,2 @@
 # lkj
-i love :dancer:,:pizza:.
+i love :dancer:.
